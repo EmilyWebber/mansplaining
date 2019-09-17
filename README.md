@@ -1,2 +1,2 @@
 # mansplaining
-Need I say more? Oh right, I probably do! 
+Need we say more? Oh right, we probably do! 
